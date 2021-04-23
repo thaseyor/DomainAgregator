@@ -1,0 +1,1 @@
+# Justhost.ru domain agregator
